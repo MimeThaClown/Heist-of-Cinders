@@ -1,1 +1,0 @@
-While not much is understood about source casting, many believe that it is a blessing from the gods themselves. Source Casting is often seen as a rare genetic inheritance, but there are ways to grant oneself source casting, often requiring a strong will, and a dangerous journey.

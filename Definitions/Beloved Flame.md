@@ -1,1 +1,0 @@
-The first ever [[Eternal Flame]] lit by [[Paracelsus]] Himself is called the **Beloved Flame**. Still burning now, the location of the flame is only known by the highest ranks within the Tribunal as well as the [[Fire Keepers]].

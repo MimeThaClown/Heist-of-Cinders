@@ -1,1 +1,0 @@
-The world you live in yay! See [[Welcome to Ashendel]]

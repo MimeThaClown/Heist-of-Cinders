@@ -1,1 +1,0 @@
-To see more info on the Scholars of Lavendus see [[Factions/Scholars of Lavendus|Scholars of Lavendus]]

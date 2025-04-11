@@ -1,1 +1,0 @@
-The Dracarian War is a long-lasting effort to push back the monstrous and grotesque dragons from invading the lands of Aurivale. The thought of combating the dragons was never a pliable concept until the Tribunal was founded. With the Tribunal's contribution and grandiose pledge to rid Ashendel of Dragons, nearly the entire nation banded arms together.

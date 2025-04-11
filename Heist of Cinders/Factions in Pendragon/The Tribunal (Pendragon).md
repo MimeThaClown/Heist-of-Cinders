@@ -1,1 +1,0 @@
-For a better description, see the more in-depth page of the [[The Tribunal |Tribunal]] 

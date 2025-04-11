@@ -1,1 +1,0 @@
-[[Malkandra]]'s personal realm. While the Mother of Decay bides her time scheming in the Abyss, waves of monstrous beings beyond comprehension await for their orders.

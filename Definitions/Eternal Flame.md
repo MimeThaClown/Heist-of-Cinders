@@ -1,1 +1,0 @@
-A large mass of fire that must be tended by their respective [[Fire Keepers |Maiden of Flame]] (The [[Beloved Flame]] being the only exception). Eternal flames were gifted to the world to suppress the frigid world that adjoins every outer border.

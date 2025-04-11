@@ -1,1 +1,0 @@
-In Ashendel, most do not refer to a demographic as a "race" or "species", but rather a tribe. 

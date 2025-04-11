@@ -1,1 +1,0 @@
-Component Casting is by far the more common type of casting. Component casting requires external materials such as an [[Igniter]], or consumable ingredients.

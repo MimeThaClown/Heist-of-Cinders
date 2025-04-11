@@ -1,1 +1,0 @@
-The Ethereal plane is the most similar plane to the mortal plane in both size and proximity. It is referred to as the "Misty Shore", or "Boundless Sea" for it's uncanny nature. While there is no "direct" path way to Border Ethereal, there are many ways, such as magic to trespass into this plane.

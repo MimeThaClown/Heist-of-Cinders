@@ -1,1 +1,0 @@
-The temple where a [[Fire Keepers |Fire Keeper]] calls home. Every active Hearth contains an [[Eternal Flame]]. While most host decorations relating to fire relating symbols, each Hearth is designed to suit the taste and aesthetic of their respective Maidens.

@@ -1,1 +1,0 @@
-When a mortal dies, their soul travels to the domain of [[Enceladus]]. When a soul enters Hel, they are beyond revival. Meaning once a mortal's very being greets the god of death and his consort, they can never return to the realm of the living. Due to this finality, very little is known about Hel.

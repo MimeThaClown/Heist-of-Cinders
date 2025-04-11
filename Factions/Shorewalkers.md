@@ -1,2 +1,0 @@
-The Shorewalkers are a group of spiritual people who believe in the connection of the different planes. They believe that the Material Plane is only a piece to a greater puzzle for harmony and evolution. Their current step into evolution is creating pathways to the Ethereal Plane known as “shores.” These shores drift people into Border Ethereal, a realm between the material and ethereal plane. The Shorewalkers mission is rumoured to originate from a god accidently spilling a secret. Now they believe it is their destiny to restore the connection between the planes.
-
