@@ -1,5 +1,3 @@
-
-{{faye}}
 # Relationships
 - Theodore Cinders - Childhood Friend
 - Arranis Silverthorn - Older brother
