@@ -1,0 +1,1 @@
+A sacred rite performed by every [[Fire Keepers |Fire Keeper]] to form their very own flame. It is rumored that any interruption during the rite causes great harm (potentially lethal) to the performing Maiden. Besides that, very little is known about what takes place during the Rite of Kindling.

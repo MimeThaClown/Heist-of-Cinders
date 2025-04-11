@@ -1,0 +1,10 @@
+{
+  "spellcheck": false,
+  "userIgnoreFilters": [
+    "z_Assets/",
+    "z_Assets/",
+    "z_Assets/Heist of Cinders"
+  ],
+  "attachmentFolderPath": "./vault/z_Assets",
+  "promptDelete": true
+}

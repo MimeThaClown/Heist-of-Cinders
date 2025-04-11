@@ -1,0 +1,3 @@
+> "Oh, you're one of those Lavendus nerds right?—...An Inteview? No thanks." *- Henry Plum, Founder of the Aurum Authority*
+
+The Aurum Authority represents the freedom and protection of the market. The Authority are a worldwide merchant guild that offers protection to any merchant or business that bears their sigil. This protection doesn't come without compensation. To be a part of the Authority, the merchant must uphold certain tenets and rules to ensure each merchant respects the boundaries of another.

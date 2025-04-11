@@ -1,0 +1,1 @@
+Aeterna-Vincula is the divine realm just beyond the celestial barrier. Perhaps it was born from the unwavering resolve of the [[Paracelsus|Sun Father]] when he casted away some of his radiance.

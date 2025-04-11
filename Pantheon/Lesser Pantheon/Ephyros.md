@@ -1,0 +1,15 @@
+*Prince of Maladies, The First Twin, God of Ailments*
+Ephyros is one of the divine twins born from [[Phiore]] and [[Swoone]]. In youth, Ephyros would take advantage of his twin's uncanny resemblance, and often played tricks and misdeeds under the name of his sister [[Ephyra]]. These deeds did not go unpunished however, as his two mothers would often show their disappointment in him. Phiore berated him with words of malice. Swoone met him with sorrow rather than wrath. She wept, believing that his cruelty was not born of malice, but of pain, and that his wickedness was her own failure as a mother.
+
+Ephyros learned to enjoy the torment he caused. The satisfaction of having his named whispered in curses by the gods and mortals alike was a treat he could never grow tired of. And yet, with all of the suffering he had spread, and the malice he had brought, his sister had never once shown hatred towards him. Her love for him was as poisonous as the ailments and plagues he has thrown at the mortals. Ignoring her didn't seem to work either, for when Ephyra received her power for miracles, she would attempt to undo all the pain that he had worked so hard for. They were equal in power, causing a stand still between their clash of powers. That was until he had snuck behind the gods back and made a deal with [[Malkandra]], giving her nightshade, in return for more power. Power that could easily rival his sister's hubris. Satisfaction crept on Ephyros' face, seeing his sister struggle to match his ailments, failing to save the lives she oh so adored. But still, she never scowled at him, never cursed nor shown any signs of hatred. He couldn't stand it. 
+
+Everything had begun to lose its satisfaction. This unconditional love gnawed at him. He couldn't understand it, nor accept it. Why couldn't she be like his parents? He wanted to crush her spirit—no, he **had** to. And so, Ephyros, alongside his worshippers began the beginnings of his grand scheme. To prove that the love of his sister is finite; an ignorance she fails to look past, and see the world for what it truly is.
+
+
+### Depiction
+Ephyros stands in stark contrast to his sister, though their features are strikingly similar. His pale skin mirrors hers, but his platinum blond shorter hair—still elegantly braided into a crown, though slightly disheveled—gives him a more restless appearance. His features are delicate, with high cheekbones, and a slightly sharper jawline. He adorns silver armor with filgrees too abstract to show their true meaning; some may infer that they are poisons, while others assume them as tonics.
+
+### Commandments of Ephyros
++ **Find Power in Disruption**: *Never shy away from shaking established order. When things crumble, that is when new possibilities begin to forge.*
++ **Bring Malady and Misfortune**: *Suffering is a natural part of existence. Those who show hubris are the highest priority for misfortune.*
++ **Accept the Weight of Abandonment**: *Like all things, even bonds are finite and can be broken. Do not let your bonds interfere with your purpose.*

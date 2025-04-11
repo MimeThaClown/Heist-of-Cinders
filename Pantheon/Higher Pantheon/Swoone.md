@@ -1,0 +1,14 @@
+*The Rose Mistress, Lady of Longing, Goddess of Love*
+Swoone's longing for embrace and passion is her greatest quality, but also the greatest cause of her failures. Swoone represents the duality of eternal devotion and impulsiveness. She often finds herself lost in her own emotions and devotes her entire being into whatever obsession she holds at the moment. Swoone's domain primarily represents romantic infatuation, but she also shares the love of different forms, such as familial love or cherishing objects of sentimental value. Her heart knows no boundaries, finding beauty where others see only flaws, and warmth even in what the world deems dark or wicked. To **Swoone**, love is not confined by reason; it is a force as wild and untamed as the emotions that drive it.
+
+But like the thorns on a rose, her boundless infatuation does not come without pain. Many times has Swoone fall for the gods around her, each love unique but burned brightly with passion. Yet all inevitably faded, some gentle, but all ending in heartbreak. Though unlike all of her past affections, nothing was more painful than her encounter with [[Malkandra]]. After she crossed the celestial barrier, [[Malkandra]] had managed to converse with Swoone. The Mother of Decay said that within Swoone she saw her own redemption, and perhaps a path to betterment. Swoone believed these false claims and had fallen deep in love with Malkandra, only to be betrayed after their first night. Stricken with grief, Swoone's very body cracked with heartbreak, and her radiance seeped through. With a satisfied grin, Malkandra left Swoone shortly after stealing the radiance that snuck through the cracks, making a demi-god by the name of [[Roque]]. 
+
+With every heartbreak comes another scar-like crack forms upon the Rose Mistress. Even as they mend and heal, the scar remains, serving as a reminder of sorrow. Still, Swoone holds strong on her hopeless-romantic dreams. To her, it is not a question of _if_ but _when_—for every soul, there exists a missing half, waiting to make them whole.
+
+### Depiction
+Swoone is shown as a beautiful young woman with porcelain-like skin. Thin cracks form around her body to represent her fragility, but a brilliant and radiant smile stretches across her face to represent her unwavering optimism and love.
+
+### Commandments of Swoone
++ **Grow Through Love**: *Let love guide you in growth, to heal wounds, whether in yourself or others.*
++ **Give Love Unconditonally**: *Love is a gift, not a transaction. Offer love without expectation, knowing that its beauty lies in the excitement, passion, and selflessness.*
++ **Seek Love in Yourself Before Others**: *You must learn to find your own value and worth before you can love others. Believe in your own affirmation, before seeking other's.* 

@@ -1,0 +1,1 @@
+The weave refers to as the invisible magic threads that surround all of Ashendel. When [[Dimalyse]] crossed the celestial barrier, a part of her radiance shattered and became one with the weave. Granting the mortals the gift of magic and sorcery.

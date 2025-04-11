@@ -1,0 +1,1 @@
+The Age of Concord signifies a pivotal moment when [[Paracelsus]] crossed the celestial barrier and made first contact with Ashendel. Though many gods initially opposed this transgression, others eventually followed his example, sacrificing a portion of their radiance to enter [[Aeterna-Vincula]].
