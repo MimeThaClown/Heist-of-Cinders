@@ -2,7 +2,7 @@
 
 -------------------------------------------------------------------------
 ```dataview
-table dateformat(file.mtime, "MMMM dd") as "Last Modified"
+table Author.author as "Editor",dateformat(file.mtime, "MMMM dd") as "Last Modified"
 from "player-vault"
 sort file.mtime desc
 limit 4
