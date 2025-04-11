@@ -2,8 +2,9 @@
 
 -------------------------------------------------------------------------
 ```dataview
-table Author.author as "Editor",dateformat(file.mtime, "MMMM dd") as "Last Modified"
+table dateformat(file.mtime, "MMMM dd, HH:mm") as "Last Modified"
 from "player-vault"
+where file.name != "Author"
 sort file.mtime desc
-limit 4
+limit 5
 ```
