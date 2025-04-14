@@ -1,1 +1,1 @@
-lol
+Seen as the poster boy of the Tribunal
