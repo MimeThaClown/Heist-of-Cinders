@@ -1,1 +1,1 @@
-Xarrus' first met the original group ([[Haliya]],[[Godfrey]],[[player-vault/Party/Ryme/Relationships|Relationships]])
+Xarrus' first met the original group ([[Haliya]],[[Godfrey]],[[player-vault/Party/Ryme/Relationships|Ryme]]) in the bar
