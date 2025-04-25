@@ -10,4 +10,5 @@ Father Callisto appears to be a human male with long blond hair, and golden eyes
 - ~~Evil~~
 - ~~Not Evil~~
 - ~~Evil~~
-- Not Evil (I still think he's evil)
+- ~~Not Evil (I still think he's evil)~~
+- Evil (Maybe he's not?)
