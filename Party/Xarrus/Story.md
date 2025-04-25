@@ -4,5 +4,5 @@ Xarrus, stayed behind and interrogated Dana (wasn't really an interrogation, Xar
 
 When they got past the back alley, the group came across three buildings, Xarrus went into the abandoned tavern and found some gold. When he left that building he was met with Ryme and a child, named Bella. Some talking happened between the child, Godfrey, Ryme, and Xarrus- eventually it led with Xarrus entering the abandoned warehouse first and getting absolutely ambush.
 
-The fight was surprisingly diffi
+The fight was surprisingly difficult, having dropped both Xarrus and Haliya
 
