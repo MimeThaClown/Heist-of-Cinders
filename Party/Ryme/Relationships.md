@@ -1,2 +1,2 @@
 Damien Valentine - Director of the Archambeau orphanage
-Ruby Valentine - 
+Ruby Valentine - Friend from Archambeau orphanage :)
