@@ -7,4 +7,5 @@ Occupation: Vileblood Hunter
 
 Height: 6"6
 Weight:120 lbs.
-Skin tone:
+Skin tone: White, with the smallest hint of blue undertone.
+Hair: A very pale Blue, slicked back undercut style. Goatee and Handleba
