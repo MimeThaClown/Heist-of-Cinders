@@ -4,5 +4,5 @@ Xarrus, stayed behind and interrogated Dana (wasn't really an interrogation, Xar
 
 When they got past the back alley, the group came across three buildings, Xarrus went into the abandoned tavern and found some gold. When he left that building he was met with Ryme and a child, named Bella. Some talking happened between the child, Godfrey, Ryme, and Xarrus- eventually it led with Xarrus entering the abandoned warehouse first and getting absolutely ambush.
 
-The fight was surprisingly difficult, having dropped both Xarrus and Haliya, but they survived. This is where the group met a strange woman,  named Amaryliss, we were all 
+The fight was surprisingly difficult, having dropped both Xarrus and Haliya, but they survived. This is where the group met a strange woman, named Amaryliss, we were all very suspicious of her but she kind of won us over. After deciding to rest for a few moments after the fight, we learned Calisto had something to do with Emmrich's dissapeareance (a kenku told us) 
 
