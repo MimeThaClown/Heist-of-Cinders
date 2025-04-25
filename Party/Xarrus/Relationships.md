@@ -1,5 +1,6 @@
 Father Lucien- Leader of the Vileblood hunters, Xarrus' boss.
-[[Catalina]]- Friends.
+[[Catalina]]- Tiefling Friends.
 [[Godfrey]]- Buddies.
-[[Haliya]]- Pals, 
+[[Haliya]]- Pals.
 [[Amara]]- Allies, a little(a lot) intimidated by her.
+[[Ryme]]
