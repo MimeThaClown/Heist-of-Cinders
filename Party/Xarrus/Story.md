@@ -10,4 +10,4 @@ Before the party could deliberate any more, Calisto himself, showed up with a pa
 
 (Arranis showed up too, but later and for like 40 seconds)
 
-Once we rested up a little, we decided to 
+Once we rested up a little, we decided to continue on our way. On our way back, we ran into a woman knight actively threatening Calisto- we obviously had to recruit her. 
