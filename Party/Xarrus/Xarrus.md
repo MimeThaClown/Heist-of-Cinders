@@ -12,3 +12,5 @@ Hair: A very pale Blue, slicked back undercut style. Goatee and Handlebar mustac
 Eye: Red Sclera with Icey blue pupils.
 
 Wears silver chains around his horns.
+Black clothing, semi formal, with red accents. 
+Small glasses, with red lenses.
