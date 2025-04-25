@@ -14,3 +14,5 @@ Eye: Red Sclera with Icey blue pupils.
 Wears silver chains around his horns.
 Black clothing, semi formal, with red accents. 
 Small glasses, with red lenses.
+
+[[player-vault/Party/Xarrus/Relationships|Relationships]]
