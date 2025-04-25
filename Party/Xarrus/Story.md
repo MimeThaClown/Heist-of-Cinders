@@ -2,5 +2,5 @@ Xarrus' first met the original group ([[Haliya]],[[Godfrey]],[[player-vault/Part
 
 Xarrus, stayed behind and interrogated Dana (wasn't really an interrogation, Xarrus asked one question and rejoined the group). That is when the group travelled to the Red District (this is where the lead to find Emmrich led them), they were first stopped by the tribunal who had sanctioned off a crime scene, leading them to take a back alley through a shop called Merlins, a very purple shop.
 
-
+When they got past the back alley, the group came across three buildings, Xarrus went into the abandoned tavern and found some gold. When he left that buil
 
