@@ -16,4 +16,6 @@ What we didn't know, was that when Ryme dissapeared during the abandoned warehou
 
 Things were going well, until Arranis showed up at Theo's door, and Theo caved like a little bitch letting him inside the shop while Amra hid. No amount of stalling, stopped Arannis from finding his little sister though.
 
-Soon enough, he ~~forced~~ volunteered his way onto the party and joined us on our quest to find Emmrich- which finally led us into the sewers.  
+Soon enough, he ~~forced~~ volunteered his way onto the party and joined us on our quest to find Emmrich- which finally led us into the sewers.  We traveled around for a while, when finally something floated down a stream and attacked us, we took quick care of it.
+
+Xarrus had decided to study it, and this where it was revealed t
