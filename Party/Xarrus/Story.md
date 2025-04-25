@@ -6,5 +6,5 @@ When they got past the back alley, the group came across three buildings, Xarrus
 
 The fight was surprisingly difficult, having dropped both Xarrus and Haliya, but they survived. This is where the group met a strange woman, named Amaryliss, we were all very suspicious of her but she kind of won us over. After deciding to rest for a few moments after the fight, we learned Calisto had something to do with Emmrich's dissapeareance (a kenku told us), and that the syndicate also had a part.
 
-Before the party could deliberate any more, Calisto himself, showed up with a party of tribunal soldiers. This is where 
+Before the party could deliberate any more, Calisto himself, showed up with a party of tribunal soldiers. This is where the group learned Calisto was looking for Emmrich as well, along with the news that the council had been attacked by the syndicate.
 
