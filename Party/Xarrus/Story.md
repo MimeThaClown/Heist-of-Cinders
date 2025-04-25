@@ -19,3 +19,5 @@ Things were going well, until Arranis showed up at Theo's door, and Theo caved l
 Soon enough, he ~~forced~~ volunteered his way onto the party and joined us on our quest to find Emmrich- which finally led us into the sewers.  We traveled around for a while, when finally something floated down a stream and attacked us, we took quick care of it.
 
 Xarrus had decided to study it, and this where it was revealed this creature was a monstrosity from the abyss itself. Along with that revelation, Xarrus finally offered some information of himself to the group: he was a Vileblood hunter, and his target was more closely related to finding Emmrich than he had orignally thought.
+
+The group the continued through the sewers, where they stumbled upon something no one thought to expect. '[[Father Callisto]]' 
