@@ -1,1 +1,1 @@
-A priest of the Tribunal from Archambeau Orphanage in Pendragon
+A priest of the Tribunal from Archambeau Orphanage in Pendragon, haunted by a 
