@@ -1,1 +1,1 @@
-A priest of the Tribunal from Archambeau Orphanage in Pendragon, seems to be grap
+A priest of the Tribunal from Archambeau Orphanage in Pendragon, seems to be grappling with secrets from his part. 
