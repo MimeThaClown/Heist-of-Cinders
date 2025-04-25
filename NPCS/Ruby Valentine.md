@@ -1,3 +1,4 @@
+![[Pasted image 20250425121051.png]]
 # Description
 A human female with vibrant red hair, currently known as "The Gem of the Tribunal". Grew up at the Archambeau orphanage with Ryme Valentine, after the Thistlebrooke incident. 
 
