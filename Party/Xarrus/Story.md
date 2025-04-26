@@ -24,4 +24,4 @@ The group the continued through the sewers, where they stumbled upon something n
 
 That was until, Callisto opened a black hole, a portal to the abyss, a place of anyone's nightmares. And Xarrus laid only a few inches from it, with the risk of falling into the one place he'd never survive.
 
-Things looked grim for the party, until Arranis made the ultimate sacrifice to protect his family. He threw 
+Things looked grim for the party, until Arranis made the ultimate sacrifice to protect his family. He threw Callisto and himself into Malkandra's realm. Potentially killing them both.
