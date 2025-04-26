@@ -20,7 +20,10 @@
   
  and led a prayer.
   
-He continues... "By request of Lady Alariel Silverthorn, I have been entrusted with the final words of her son. But normally I would speak those final words. But, at the request of his sister she would like to speak for the templar of Pendragon, defender of the realm... Amara would you like to step up? "
+He continues... "By request of Lady Alariel Silverthorn, I have been entrusted with the final words of her son. But normally I would speak those final words. But, at the request of his sister she would like to speak for the templar of Pendragon, defender of the realm. (Idk what else he said) Amara would you like to step up?"
+
+Amara steps up...
+
  Amara publicly read Arannis' will and said to give his sword to Amara. He sacrificed himself for his team to ==
   
   
