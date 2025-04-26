@@ -7,7 +7,12 @@
 
 
 
-- Arranis Silverthorn - Older brother
+- Arranis Silverthorn - Older brother (decea)
+  
+  Arannis served
+  
+  
+  
 - Lady Alariel Silverthorn - Mother
 - Eldrin Silverthorn - Father
 - Leena Silverthorn - Sister
