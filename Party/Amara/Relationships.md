@@ -20,7 +20,7 @@
   
   ![[Pasted image 20250425205909.png]]
   
-  Amara's brother
+  She is a trusted council woman of the esteemed Ferror Council to Pendragon.
   
   
 - Eldrin Silverthorn - Father
