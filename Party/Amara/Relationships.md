@@ -16,7 +16,7 @@
   
   Where father Calisto spoke:
   
-  ""
+  " We are here to ho"
   
   
   and led a prayer.
