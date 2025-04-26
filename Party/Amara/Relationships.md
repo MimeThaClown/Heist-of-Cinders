@@ -8,7 +8,7 @@
 
 
 
-- Arranis Silverthorn - Older brother (deceased)
+- Arannis Silverthorn - Older brother (deceased)
   
   ![[Pasted image 20250425205817.png]]
   
@@ -16,7 +16,7 @@
   
   Where father Calisto spoke:
   
-  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrifice for his people. He was a flame in the darkness burning with pride and devotion to Paracelsus' will and "
+  " We are here to honor Arannis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrifice for his people. He was a flame in the darkness burning with pride and devotion to Paracelsus' will and more importantly the will of his family. Never did Arannis ever hide behind his title. "
   
   
   and led a prayer.
