@@ -20,10 +20,11 @@
   
   ![[Pasted image 20250425205909.png]]
   
-  
+  Amara's brother
   
   
 - Eldrin Silverthorn - Father
+
   
   ![[Pasted image 20250425205923.png]]
   
