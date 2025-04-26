@@ -16,7 +16,7 @@
   
   Where father Calisto spoke:
   
-  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrafice for his people "
+  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrifice for his people. He was a flame in the darkness burning with pride and devotion to paracelsus "
   
   
   and led a prayer.
