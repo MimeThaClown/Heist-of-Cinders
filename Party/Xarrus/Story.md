@@ -22,4 +22,4 @@ Xarrus had decided to study it, and this where it was revealed this creature was
 
 The group the continued through the sewers, where they stumbled upon something no one thought to expect. '[[Father Callisto]]' torturing a young Emmrich, with the help of an elven lady and an abberration that he recognized as an intellect devourer. Father Callisto had planned on just leaving, but the party (myself included) couldn't just let him walk away and poked the (very deadly) bear. Almost all of us went down from just one blow from Callisto- but Arranis came in clutch multiple times and saved us.
 
-That was until, Callisto opened a black hole, a portal to the 
+That was until, Callisto opened a black hole, a portal to the abyss, a place of anyone's nightmares. And Xarrus laid only a few inches from it, with the risk if
