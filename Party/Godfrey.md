@@ -1,1 +1,1 @@
-Seen as the poster boy of the Tribunal
+The Posterboy of the Tribuna
