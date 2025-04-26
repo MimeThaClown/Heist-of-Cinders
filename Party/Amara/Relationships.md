@@ -1,6 +1,7 @@
 - Theodore Cinders - Childhood Friend
   ![[Pasted image 20250425205644.png]]
   ![[Pasted image 20250425205702.png]]
+
 =="Amara often found herself wandering into Fortune’s Bold where Theodore Cinders runs a modest little forge nestled in the Escanor district. The sign above the door, aged by the weather and soot, read:== 
 
 ==“Fortune Favors the Bold”
