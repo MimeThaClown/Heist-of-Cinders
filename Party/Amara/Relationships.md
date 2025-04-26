@@ -24,4 +24,11 @@
   
   
 - Eldrin Silverthorn - Father
+  
+  ![[Pasted image 20250425205923.png]]
+  
+  
+  
 - Leena Silverthorn - Sister
+  
+  ![[Pasted image 20250425205935.png]]
