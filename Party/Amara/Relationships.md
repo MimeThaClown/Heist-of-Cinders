@@ -12,7 +12,7 @@
   
   ![[Pasted image 20250425205817.png]]
   
-  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation.==
+  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation.== So much so that 
   
   
   
@@ -20,13 +20,17 @@
   
   ![[Pasted image 20250425205909.png]]
   
-  She is a trusted council woman of the esteemed Ferror Council to Pendragon.
+  ==She is a trusted council woman of the esteemed Ferror Council to Pendragon.==
   
   
 - Eldrin Silverthorn - Father
 
   
   ![[Pasted image 20250425205923.png]]
+  
+  
+  
+  
   
   
   
