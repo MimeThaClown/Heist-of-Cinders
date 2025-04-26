@@ -41,7 +41,7 @@ If I had one more breath, I would use it to tell you this Amara: You are enough.
 There is nothing left I desire, save for this: Let my armor rest in the halls of the Tribunal. Let my memory rest with my sisters. And let my sword remain where it always has been, in service of Amara. Let my name be not mourned, but remembered—as a brother, a son, and a knight who chose to stand.
 
 May the flame be with you.
-— Arranis Silverthorn"
+— Arannis Silverthorn"
   
   
   
