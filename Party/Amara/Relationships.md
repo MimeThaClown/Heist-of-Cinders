@@ -7,9 +7,9 @@
 
 
 
-- Arranis Silverthorn - Older brother (decea)
+- Arranis Silverthorn - Older brother (deceased)
   
-  Arannis served
+  Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration
   
   
   
