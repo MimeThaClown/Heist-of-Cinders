@@ -1,6 +1,15 @@
+<<<<<<< HEAD
 - ## Theodore Cinders - Childhood Friend
+=======
+- Theodore Cinders - Childhood Friend
+<<<<<<< HEAD
+  ![[Theo.png|300]]
+  ![[Theo 2.png|200]]
+=======
+>>>>>>> origin/main
   
   
+>>>>>>> origin/main
 
 =="Amara often found herself wandering into Fortune’s Bold where Theodore Cinders runs a modest little forge nestled in the Escanor district. The sign above the door, aged by the weather and soot, read:== 
 
@@ -10,7 +19,12 @@
 
 - ## Arannis Silverthorn - Older brother (deceased)
   
+<<<<<<< HEAD
+  ![[Arannis Silverthorn.png|200x300]]
+  
+=======
     
+>>>>>>> origin/main
   ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. == == So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
   
   ==Where father Calisto spoke:==
