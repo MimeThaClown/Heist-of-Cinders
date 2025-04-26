@@ -16,7 +16,7 @@
   
   Where father Calisto spoke:
   
-  " We are here to ho"
+  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrafice for his people "
   
   
   and led a prayer.
