@@ -10,10 +10,18 @@
 
 - Arranis Silverthorn - Older brother (deceased)
   
+  ![[Pasted image 20250425205817.png]]
+  
   ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation.==
   
   
   
 - Lady Alariel Silverthorn - Mother
+  
+  ![[Pasted image 20250425205909.png]]
+  
+  
+  
+  
 - Eldrin Silverthorn - Father
 - Leena Silverthorn - Sister
