@@ -12,11 +12,11 @@
   
   ![[Pasted image 20250425205817.png]]
   
-  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. == == So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of parasylsis and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
+  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. == == So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
   
   Where father Calisto spoke:
   
-  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrifice for his people. He was a flame in the darkness burning with pride and devotion to paracelsus "
+  " We are here to honor Arranis Silverthorn knight of the tribunal who's noble heart and unshakable faith led him to make the ultimate sacrifice for his people. He was a flame in the darkness burning with pride and devotion to Paracelsus' will and "
   
   
   and led a prayer.
