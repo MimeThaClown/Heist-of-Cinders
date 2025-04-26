@@ -10,7 +10,7 @@
 
 - Arannis Silverthorn - Older brother (deceased)
   
-  ![[Pasted image 20250425205817.png]]
+  ![[Arannis Silverthorn.png]]
   
   ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. == == So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
   
@@ -47,7 +47,7 @@
   
 - Lady Alariel Silverthorn - Mother
   
-  ![[Pasted image 20250425205909.png]]
+  ![[Alariel Silverthorn.png]]
   
   ==She is a trusted council woman of the esteemed Ferror Council to Pendragon.==
   
@@ -55,7 +55,7 @@
 - Eldrin Silverthorn - Father
 
   
-  ![[Pasted image 20250425205923.png]]
+  ![[Eldrin Silverthorn.png]]
   
   
   
