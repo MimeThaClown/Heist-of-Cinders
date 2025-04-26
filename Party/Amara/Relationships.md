@@ -20,8 +20,8 @@
   
  and led a prayer.
   
-He continues... "By request of Lady"
- Amara publicly read Arranis' will and said to give his sword to Amara. He sacraficed himself for his team to ==
+He continues... "By request of Lady Alariel Silverthorn, I have been entrusted "
+ Amara publicly read Arannis' will and said to give his sword to Amara. He sacrificed himself for his team to ==
   
   
   
