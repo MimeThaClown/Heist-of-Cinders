@@ -12,7 +12,7 @@
   
   ![[Pasted image 20250425205817.png]]
   
-  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation.== So much so that 
+  ==Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. == ==So much so that a public funeral was held by the tribunal.==
   
   
   
