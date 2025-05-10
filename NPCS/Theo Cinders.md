@@ -6,7 +6,7 @@ Theodore Cinders runs a modest little forge nestled in the Escanor district. The
 - Seems very... "fond" of Amara
 - Worked on Fire Keeper lady hearth?!
 - Amara asked him and his father, Gilgamish Cinders to craft silver accessories for her upcoming party.
-- He refused 3000 gp from Cora 
+- He refused 3000 gp from Cora Chamille
 
 
 ## Relationships:
