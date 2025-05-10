@@ -7,6 +7,9 @@ Theodore Cinders runs a modest little forge nestled in the Escanor district. The
 - Worked on Fire Keeper lady hearth?!
 - Amara asked him and his father, Gilgamish Cinders to craft silver accessories for her upcoming party.
 - Amara's Mother in law tried to pay him 3000 gp to get him to stay away form Amara which he didn't accept. "What he have Amara its priceless to me no gold could ever replace what we have"
+- Attending the lumiere ball?
+- Doesn't know how to dance.
+- 
 
 
 ## Relationships:
