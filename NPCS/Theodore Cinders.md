@@ -1,6 +1,9 @@
 ### Race: Half Elf
 ### Profession: Blacksmith and Architect
 # Description
+Soft spoken half elf. A gifted black smith and an architect
+
+
 Theodore Cinders runs a modest little forge nestled in the Escanor district. The sign above the door, aged by the weather and soot, read: “Fortune Favors the Bold”. He is a half-elf man who is Amara Silverthorn's childhood friend. He tends to be nervous and has good hospitality (he served Amara's friends pastries) 
 
 
