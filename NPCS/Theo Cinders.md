@@ -13,4 +13,4 @@ Theodore Cinders runs a modest little forge nestled in the Escanor district. The
 
 - Gilgamish Ciders - Father
 - Amara Silverthorn - Friend
-- Ari
+- Ari Cinders - Adoptive sister
