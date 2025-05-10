@@ -16,7 +16,7 @@
 - He adopted a little girl Ari while he was travelling. Amara was excited to meet her but she was nowhere to be found when she was visiting to get the ignitor she needed to perform her ritual with Callisto.
 - He seems to be very strong. Above average. And loves wrestling with Theo. While Theo also seems to be strong but not as strong as his father. She found is funny whenever they'd wrestle. The way Theo would immediately tap out. It made Amara laugh every time.
 
-## Arannis Silverthorn - Older brother (deceased)
+## Arannis Silverthorn - Older brother (deceased?)
 
   - Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
   - Though he was busy with Tribunal duties. He would often run to Amara whenever he had a chance.
