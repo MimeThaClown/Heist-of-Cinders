@@ -33,7 +33,7 @@
 - She was rude and out of line to her friend Haliya. She felt her blood was boiling up when she heard her words and even more when Haliya chose to leave her shop and yielded. Amara left after acquiring the gem she needed for the ritual and reassured Haliya that no matter what her occupation is she's is Amara Silverthorn's friend and she should never feel bad about herself when she's around.
 - Her and her brother never liked her nor do they agree with this marriage.
 
-## Embrose Von Camille 
+## Ambrose Von Camille 
 
 - Her fiancé whom she doesn't love.
 
@@ -55,7 +55,7 @@
   ___________________________________
 
 
-## Rhyme Valentine
+## Ryme Valentine
 - They met when she was looking for Emeric Archambeau.
 - He doesn't seem to know how to tell the truth. Amara feels the need to question everything he's. Is he withholding information?
 
