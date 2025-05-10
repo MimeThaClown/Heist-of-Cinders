@@ -23,12 +23,12 @@
   - Arranis hated her mother in law. He was against the engagement and felt like the feeling was mutual.
   - She never let herself believe he was truly gone. There were too many things left unsaid, too many regrets. She had a glint of hope that he'd still be alive. She made a promise to herself that she'd exhaust every path till she knew for sure he was dead. She asked Father Callisto for help and he agreed to help. He asked her for a list of equipment he'd need for a ritual:
 
-- 100 GP GEM (she acquired it from the jewelers shop her mother in law was in)
-- Igniter GEM (From Fortunes Bold)
-- Fist sized chunk of mithril (tbd)
+100 GP GEM (she acquired it from the jewelers shop her mother in law was in)
+Igniter GEM (From Fortunes Bold)
+Fist sized chunk of mithril (tbd)
   
-  ## Cora Chamille - Mother in law
-- She doesn't seem to respect Amara's brother very much.
+## Cora Chamille -Fiance
+  - She doesn't seem to respect Amara's brother very much.
 - She cares a lot about keeping appearances.
 - She was rude and out of line to her friend Haliya. She felt her blood was boiling up when she heard her words and even more when Haliya chose to leave her shop and yielded. Amara left after acquiring the gem she needed for the ritual and reassured Haliya that no matter what her occupation is she's is Amara Silverthorn's friend and she should never feel bad about herself when she's around.
 - Her and her brother never liked her nor do they agree with this marriage.
