@@ -50,6 +50,8 @@
 ## Leena Silverthorn - Sister
 
 ## Father Callisto
+- Has a subtle protectiveness over Amara. 
+- Once warned her: “Miss Silverthorn, I cannot recommend the path you're going down. There are things worse than death.”_
 
 
 ## Emeric Archambeau
