@@ -64,6 +64,7 @@
 - To Amara he was more than a burden or responsibility. She started seeing him as more than a mission.
 - He reminded her of innocence...Of the life she never got to have.
 - She remembers the little things he enjoyed and would make him smile. Notices when he's scared even if he doesn't say a word.
+- She tries to let him see how much she worries. But the moment he's not near she's counting step and weighing dangers.
   ___________________________________
 
 
