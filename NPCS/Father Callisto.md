@@ -1,7 +1,7 @@
 
 ![[Father_Callisto.jpg|300]]
 # Description
-Father Callisto appears to be a human male with long blond hair, and golden eyes. Serving as the head priest of the Tribunal, Callisto holds much power of the laws and legality in Pendragon. Known for his wisdor
+Father Callisto appears to be a human male with long blond hair, and golden eyes. Serving as the head priest of the Tribunal, Callisto holds much power of the laws and legality in Pendragon. Known for his wisdom, restraint. When he speaks people listened.
 
 
 # Notable Facts
