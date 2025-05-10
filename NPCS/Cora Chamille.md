@@ -1,5 +1,5 @@
 # Description
-A woman of high status whos stuck up and only cares about money an
+A woman of high status who's stuck up and only cares about money and appearances.
 
 # Notable Facts
 - She doesn't seem to respect Amara's brother very much.
