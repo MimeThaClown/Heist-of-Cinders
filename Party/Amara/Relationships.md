@@ -62,7 +62,7 @@
 - She's been protecting him for the past 6 years. But he ran away when she wasn't there and it took her weeks to find him with the help of her new companions and her brother Arranis. He was abducted by a Callisto doppelganger, a mind flayer, and a strange looking elf in the sewers.
 - He was always fond of Bella. Everyone knows they have feelings but them. Amara ruined his secret and he wanted to ask her to go to the ball.
 - To Amara he was more than a burden or responsibility. She started seeing him as more than a mission.
-- 
+- He reminded her of innocence...Of the life she never got to 
   ___________________________________
 
 
