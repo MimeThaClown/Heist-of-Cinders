@@ -30,7 +30,7 @@ Fist sized chunk of mithril (tbd)
 ## Cora Chamille -Fiance
   - She doesn't seem to respect Amara's brother very much.
   - Cold towards the lower class.
-  - Attempted to bribe Theo and critiques him harshly. She 
+  - Attempted to bribe Theo and critiques him harshly. She tries to stop Amara from interacting with him.
 - She cares a lot about keeping appearances.
 - She was rude and out of line to her friend Haliya. She felt her blood was boiling up when she heard her words and even more when Haliya chose to leave her shop and yielded. Amara left after acquiring the gem she needed for the ritual and reassured Haliya that no matter what her occupation is she's is Amara Silverthorn's friend and she should never feel bad about herself when she's around.
 - Her and her brother never liked her nor do they agree with this marriage.
