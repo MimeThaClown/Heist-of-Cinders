@@ -1,5 +1,5 @@
 # Description
-The owner of Fortune's bold. A 
+The owner of Fortune's bold. A modest little forge nestled in the Escanor district. A muscular man who seems to be 
 
 # Notable Facts
 
