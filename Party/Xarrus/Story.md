@@ -12,7 +12,7 @@ Before the party could deliberate any more, Calisto himself, showed up with a pa
 
 Once we rested up a little, we decided to continue on our way. On our way back, we ran into a woman knight actively threatening Calisto, her name was [[Amara]]- we obviously had to recruit her.  The party and her eventually agreed to team up, but very hesitantly.
 
-What we didn't know, was that when Ryme dissapeared during the abandoned warehouse scene, he found some kind of riddle which we were able to decide enough to know that we had to go to the sewers (much to Rymes woe). On our way there, Amara caught eye of someone looking for her, and she did not want to be found by this man, so we hid in the shop of one her 'friends', [[Theo Cinders]], we totally weren't going to rob him.
+What we didn't know, was that when Ryme dissapeared during the abandoned warehouse scene, he found some kind of riddle which we were able to decide enough to know that we had to go to the sewers (much to Rymes woe). On our way there, Amara caught eye of someone looking for her, and she did not want to be found by this man, so we hid in the shop of one her 'friends', [[Theodore Cinders]], we totally weren't going to rob him.
 
 Things were going well, until Arranis showed up at Theo's door, and Theo caved like a little bitch letting him inside the shop while Amra hid. No amount of stalling, stopped Arannis from finding his little sister though.
 
