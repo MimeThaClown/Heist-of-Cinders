@@ -53,8 +53,8 @@
 - Has a subtle protectiveness over Amara. 
 - Once warned her: “Miss Silverthorn, I cannot recommend the path you're going down. There are things worse than death.”
 - Is helping her with a ritual to find out if Arranis is alive or dead.
-- She always hated him and blamed him for Arranis's death. Up until she found out Callisto that was in the sewers was a doppelganger. She felt guilty but prideful. But she had to swallow her pride to ask for a favour.
-- 
+- She always hated him and blamed him for Arranis's death. Up until she found out Callisto that was in the sewers was a doppelganger. She felt guilty but prideful. But she had to swallow her pride to ask for a favor.
+- She never expected to rely on someone like him. H
 
 
 ## Emeric Archambeau
