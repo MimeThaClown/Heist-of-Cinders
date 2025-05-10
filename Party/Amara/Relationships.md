@@ -16,7 +16,7 @@
 - He adopted a little girl Ari while he was travelling. Amara was excited to meet her but she was nowhere to be found when she was visiting to get the ignitor she needed to perform her ritual with Callisto.
 - He seems to be very strong. Above average. And loves wrestling with Theo. While Theo also seems to be strong but not as strong as his father. She found is funny whenever they'd wrestle. The way Theo would immediately tap out. It made Amara laugh every time.
 
-## Arannis Silverthorn - Older brother (deceased)
+## Arannis Silverthorn - Older brother (deceased?)
 
   - Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
   - Though he was busy with Tribunal duties. He would often run to Amara whenever he had a chance.
@@ -27,13 +27,17 @@
 - Igniter GEM (From Fortunes Bold)
 - Fist sized chunk of mithril (tbd)
   
-  ## Cora Camille - Mother in law
+  ## Cora Chamille - Mother in law
 - She doesn't seem to respect Amara's brother very much.
 - She cares a lot about keeping appearances.
 - She was rude and out of line to her friend Haliya. She felt her blood was boiling up when she heard her words and even more when Haliya chose to leave her shop and yielded. Amara left after acquiring the gem she needed for the ritual and reassured Haliya that no matter what her occupation is she's is Amara Silverthorn's friend and she should never feel bad about herself when she's around.
 - Her and her brother never liked her nor do they agree with this marriage.
 
+<<<<<<< HEAD
 ## Ambrose Von Camille 
+=======
+## Embrose Von Chamille -Fiance
+>>>>>>> origin/main
 
 - Her fiancé whom she doesn't love.
 

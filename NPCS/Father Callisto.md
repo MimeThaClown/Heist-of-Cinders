@@ -12,3 +12,4 @@ Father Callisto appears to be a human male with long blond hair, and golden eyes
 - ~~Evil~~
 - ~~Not Evil (I still think he's evil)~~
 - Evil (Maybe he's not?) (I think he's chill)
+- Is helping Amara Silverthorn with a ritual to see if her brother Arranis Silverthorn is still alive.
