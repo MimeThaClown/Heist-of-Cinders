@@ -1,5 +1,5 @@
 # Description
-A kind man who lets his work speak for him. He owns a shop called Fortune's bold
+A kind man who lets his work speak for him. He owns a shop called Fortune's bold. Very muscular (hehe)
 
 # Notable Facts
 -  He was giving Nevalon some blueprints to help build a city in a cave.
