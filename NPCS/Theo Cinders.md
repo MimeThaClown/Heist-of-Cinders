@@ -5,11 +5,12 @@ Theodore Cinders runs a modest little forge nestled in the Escanor district. The
 # Notable Facts
 - Seems very... "fond" of Amara
 - Worked on Fire Keeper lady hearth?!
-- Amara asked him and his father, Gilgamish Cinders to craft silver accessories for her upcoming party.
+- Amara asked him and his father, Gilgamesh Cinders to craft silver accessories for her upcoming party.
 - Amara's Mother in law tried to pay him 3000 gp to get him to stay away form Amara which he didn't accept. "What he have Amara its priceless to me no gold could ever replace what we have"
-- Attending the lumiere ball?
+- Attending the Lumiere ball?
 - Doesn't know how to dance.
-- Learning how to fight from a book by aiolis.
+- Learning how to fight from a book by Aiolis.
+
 
 
 ## Relationships:
