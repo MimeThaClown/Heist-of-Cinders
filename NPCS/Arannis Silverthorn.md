@@ -2,7 +2,7 @@ Race: High Elf
 Status: Noble son of House Silverthorn
 Profession: knight of the Tribunal (Former), presumed dead or missing
 # Description
-Handsome knight and highly chara
+Handsome knight and highly charismatic
 
 # Notable Facts
 
