@@ -7,7 +7,9 @@ A woman of high status who's stuck up and only cares about money and appearances
 - She doesn't seem to respect Amara's brother very much.
 - She cares a lot about keeping appearances.
 - She might be a master manipulator.
-- Attempted to bribe Theo to make him g
+- Attempted to bribe Theo to make him go away.
+- Obsessed about status.
+- She's a bitch but she's also intimidating.
 
 ## Relationships:
 - Embrose Von Chamille - Son - Amara's Fiancé
