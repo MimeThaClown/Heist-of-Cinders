@@ -1,5 +1,5 @@
 # Description
-A woman of high status who's stuck up and only cares about money and appearances.
+A woman of high status who's stuck up and only cares about money and appearances. She works at a jewelry shop whom owned by the Chamille's as a family bussiness L
 
 # Notable Facts
 - She doesn't seem to respect Amara's brother very much.
