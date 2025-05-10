@@ -6,4 +6,5 @@
 - She cares a lot about keeping appearances.
 
 ## Relationships:
-- Embrose v
+- Embrose Von Chamille - Son - Amara's Fiance
+- Amara Silverthorn - Future daughter in law
