@@ -12,9 +12,6 @@ Soft spoken half elf. A gifted black smith and an architect. Though he doesn't c
 - Attending the Lumiere ball?
 - Doesn't know how to dance.
 - Learning how to fight from a book by Aiolis.
-- Seems protective but 
-
-
 
 ## Relationships:
 
