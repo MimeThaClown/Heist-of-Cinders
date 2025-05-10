@@ -53,6 +53,7 @@
 - Has a subtle protectiveness over Amara. 
 - Once warned her: “Miss Silverthorn, I cannot recommend the path you're going down. There are things worse than death.”
 - Is helping her with a ritual to find out if Arranis is alive or dead.
+- She always hated him and blamed him for Arranis's death. Up until she found out Callisto 
 
 
 ## Emeric Archambeau
