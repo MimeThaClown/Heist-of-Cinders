@@ -51,6 +51,7 @@
 
 ## Father Callisto
 
+
 ## Emeric Archambeau
 
 - She's been protecting him for the past 6 years. But he ran away when she wasn't there and it took her weeks to find him with the help of her new companions and her brother Arranis. He was abducted by a Callisto doppelganger, a mind flayer, and a strange looking elf in the sewers.
@@ -78,3 +79,4 @@
 ## Xarrus
 - Has a deep fascination for monsters.
 - A doppelganger was after their silver chain.
+- Loves sweets and pastries.
