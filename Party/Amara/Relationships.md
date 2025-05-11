@@ -2,7 +2,7 @@
 ## Theodore Cinders - Childhood Friend
 
   - Amara often found herself wandering into Fortune’s Bold where Theodore Cinders runs a modest little forge nestled in the Escanor district. The sign above the door, aged by the weather and soot, read: “Fortune Favors the Bold”
-  - She asked him and his father, Gilgamish Cinders to craft silver accessories for her upcoming party.
+  - She asked him and his father, Gilgamesh Cinders to craft silver accessories for her upcoming party.
   - She invited him to the Lumière Ball, fully aware that both her mother-in-law, Cora Camille, and her fiancé would be in attendance.
   - While they practiced dancing together, she noticed he was acting strangely. It made her wonder if he was uncomfortable or perhaps reluctant to attend.
   - Lately, he seems to be hiding something from her, and it's unsettling. She's not used to secrets in their relationship; honesty had always been their norm.
