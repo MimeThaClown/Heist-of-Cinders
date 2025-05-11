@@ -68,6 +68,7 @@ Fist sized chunk of mithril (tbd)
 ## Ryme Valentine
 - They met when she was looking for Emeric Archambeau.
 - He doesn't seem to know how to tell the truth. Amara feels the need to question everything he's. Is he withholding information?
+- Him and Amara had a heart to heart and gave her advice 
 
 ## Haliya
 - They met when she was looking for Emeric Archambeau.
