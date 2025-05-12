@@ -11,7 +11,10 @@
   - Theo has a surprise for her.
   - Theo felt like he'd embarrass her at the ball. But Amara reassured him.
   - Waited outside Fortune’s Bold with Amara while the others discussed dangerous matters inside.
-  - 
+  - Punched Amara (lightly) to play along with her attempt to prove that he's strong.
+  - Had a private conversation with a figure who _appeared_ to be Haliya (later revealed to be a doppelganger).
+  - Seemed unaware he’d spoken to an imposter and still confused about what happened.
+  - Argued with Amara about her trying to protect him. Told her that if she's avoiding helping her friends because of him, it hurts him deeply.
 
 ## Gilgamish Cinders - Theo's father
 
