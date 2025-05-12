@@ -91,13 +91,20 @@ Fist sized chunk of mithril (tbd)
 - Expressed excitement about Amara and Theo going together.
 - Wanted to style both of them for the ball, but Amara admitted she already had matching outfits tailored.
 - Showed strong interest in the ignitor Theo gave her and insisted on talking to him alone.
-- 
+- The Haliya Amara interacted with turned out to be a doppelganger.
+- Real Haliya reappeared inside, confused and unaware of what happened.
+- Passed the silver test to prove she was not the fake.
+- Reassured Amara and looked scared but honest.
+- Was hugged by Amara once trust was reestablished.
 
 ## Godfrey Thunderfall
 - Poster boy of the Tribunal
 - Seems to want to be friends with Amara and everyone.
 - She's grateful that he knocked some sense into her when she was in that alleyway.
 - Godfrey was hurt and angry about Haliya lacing his drink. Not just because of what was done but because he hadn't given a choice. If she'd asked he would've done it without hesitation. 
+- Tried to de-escalate Amara’s reaction when she drew her weapon on Haliya.
+- Stepped between Amara and Haliya to calm the situation, insisting that she was the real one.
+- Used a silver chain to prove Haliya wasn’t a doppelganger, supporting her.
 
 ## Xarrus
 - Has a deep fascination for monsters.
