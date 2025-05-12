@@ -79,6 +79,11 @@ Fist sized chunk of mithril (tbd)
 - They met when she was looking for Emeric Archambeau.
 - He doesn't seem to know how to tell the truth. Amara feels the need to question everything he's. Is he withholding information?
 - Him and Amara had a heart to heart and gave her advice 
+- Took charge of the situation when Amara confronted the doppelganger.
+- Calmly asked Amara for details and then instructed her firmly:
+-Don’t ask about what was discussed inside.
+-Don’t ask people personal questions, because doppelgangers can mimic memories.
+Confronted Theo about his private conversation with the fake Haliya
 
 ## Haliya
 - They met when she was looking for Emeric Archambeau.
