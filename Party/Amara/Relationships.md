@@ -86,7 +86,12 @@ Fist sized chunk of mithril (tbd)
 - Amara doesn't care what her occupation is. She's starting to be loyal to her.
 - She laced Godfrey's drink. It seemed to Amara like she did not have a choice but to do it. There was no pride in it but still...it did not sit right. Amara felt like she couldn't be mad because deep down she would've done the same in a heart beat if her loves ones were in danger. But still, she hated the dishonor of it. The manipulation. All she could find herself doing was to hug her while she cried. She didn't have the right words. She rarely did in moments like these. Her strength had always been her sword. So she just held her. Even if she was falling apart too.
 - Came outside saying she needed air and asked for a distraction.
-- Laughed at Amara’s armor stunt and healed her after Theo punched her.
+- Laughed at Amara’s stunt and healed her after Theo punched her.
+- Teased Theo about "damaging the goods" before the ball.
+- Expressed excitement about Amara and Theo going together.
+- Wanted to style both of them for the ball, but Amara admitted she already had matching outfits tailored.
+- Showed strong interest in the ignitor Theo gave her and insisted on talking to him alone.
+- 
 
 ## Godfrey Thunderfall
 - Poster boy of the Tribunal
