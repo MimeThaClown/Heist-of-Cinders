@@ -19,6 +19,7 @@
 ## Arannis Silverthorn - Older brother (deceased?)
 
   - Arannis served as the captain of an elite guard unit tasked with safeguarding pendragon. It earned him the respect and admiration across the city. He's revered for bravery and inspirational leadership. He upheld the Silverthorn family's prestigious reputation. So much so that a public funeral was held by the tribunal in the Escanor district in front of the tribuanal church. Banners of the surrounding buildings baring the sun sigil of Paracelsus  and also embroidered with it is the silverthorn household sigil. Noble families, common citizens, merchants, just about anyone gather to pay their respects.
+  - He calls Amara little light.
   - Though he was busy with Tribunal duties. He would often run to Amara whenever he had a chance.
   - Arranis hated her mother in law. He was against the engagement and felt like the feeling was mutual.
   - She never let herself believe he was truly gone. There were too many things left unsaid, too many regrets. She had a glint of hope that he'd still be alive. She made a promise to herself that she'd exhaust every path till she knew for sure he was dead. She asked Father Callisto for help and he agreed to help. He asked her for a list of equipment he'd need for a ritual:
