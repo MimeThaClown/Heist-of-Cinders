@@ -10,6 +10,8 @@
   - Amara's Mother in law tried to pay him 3000 gp to get him to stay away form Amara which he didn't accept. "What he have Amara its priceless to me no gold could ever replace what we have". She didn't expect Cora to go that far. To treat her and Theo like a transaction. She did know she was a bitch and stuck up but that was a new low. She felt cheap, like her relationships and friendships could be bought with coin. She felt mad at the implication that she was a burden. That being around him felt heavy. But then his words... He didn't hesitate. The could've taken the money. He could've walked away but he did not. She always believed she was too much for Theo. Too difficult, guarded, and angry. But just this once she accepted that maybe she wasn't. Maybe someone saw her scars and still stayed. And it scared her.
   - Theo has a surprise for her.
   - Theo felt like he'd embarrass her at the ball. But Amara reassured him.
+  - Waited outside Fortune’s Bold with Amara while the others discussed dangerous matters inside.
+  - 
 
 ## Gilgamish Cinders - Theo's father
 
