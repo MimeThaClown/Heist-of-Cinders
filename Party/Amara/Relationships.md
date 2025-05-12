@@ -15,6 +15,8 @@
   - Had a private conversation with a figure who _appeared_ to be Haliya (later revealed to be a doppelganger).
   - Seemed unaware he’d spoken to an imposter and still confused about what happened.
   - Argued with Amara about her trying to protect him. Told her that if she's avoiding helping her friends because of him, it hurts him deeply.
+  - Ended their argument on calmer terms, though tension between them lingered.
+  - Looked visibly upset afterward, staring at the ground in silence.
 
 ## Gilgamish Cinders - Theo's father
 
@@ -83,7 +85,8 @@ Fist sized chunk of mithril (tbd)
 - They had a brief thoughtful conversation and Amara appreciated it. Doesn't know if the feelings were mutual but Amara's way of caring is a bit aggressive but she'd protect her no matter what. Because that was a gesture she received so little in her life. 
 - Amara doesn't care what her occupation is. She's starting to be loyal to her.
 - She laced Godfrey's drink. It seemed to Amara like she did not have a choice but to do it. There was no pride in it but still...it did not sit right. Amara felt like she couldn't be mad because deep down she would've done the same in a heart beat if her loves ones were in danger. But still, she hated the dishonor of it. The manipulation. All she could find herself doing was to hug her while she cried. She didn't have the right words. She rarely did in moments like these. Her strength had always been her sword. So she just held her. Even if she was falling apart too.
-- 
+- Came outside saying she needed air and asked for a distraction.
+- Laughed at Amara’s armor stunt and healed her after Theo punched her.
 
 ## Godfrey Thunderfall
 - Poster boy of the Tribunal
