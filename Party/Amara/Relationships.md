@@ -83,7 +83,8 @@ Fist sized chunk of mithril (tbd)
 - Calmly asked Amara for details and then instructed her firmly:
 -Don’t ask about what was discussed inside.
 -Don’t ask people personal questions, because doppelgangers can mimic memories.
-Confronted Theo about his private conversation with the fake Haliya
+- Confronted Theo about his private conversation with the fake Haliya
+- Later checked in on Amara, and when she deflected, redirected the group to head to the Tribunal.
 
 ## Haliya
 - They met when she was looking for Emeric Archambeau.
@@ -115,3 +116,5 @@ Confronted Theo about his private conversation with the fake Haliya
 - Has a deep fascination for monsters.
 - A doppelganger was after their silver chain.
 - Loves sweets and pastries.
+- Confused during the confrontation, but took things seriously.
+- Asked directly if the Haliya Amara was with had left her.
