@@ -15,4 +15,4 @@ Born into a noble family and was the perfect heir. People looked up to him and h
 - Leena Silverthorn - Younger sister
 - Lady Alariel Silverthorn - Mother
 - Eldrin Silverthorn - Father
-- Father Callisto
+- Father Callisto - Head priest of the tribunal
