@@ -62,7 +62,8 @@ Fist sized chunk of mithril (tbd)
 - Is helping her with a ritual to find out if Arranis is alive or dead.
 - She always hated him and blamed him for Arranis's death. Up until she found out Callisto that was in the sewers was a doppelganger. She felt guilty but prideful. But she had to swallow her pride to ask for a favor. “Take this with a collected head. You might lose more than what you’ve already lost.” What he said surprised her.
 - She never expected to rely on someone like him. 
-
+- red moon lilies
+chicken nuggies 8
 
 ## Emeric Archambeau
 
