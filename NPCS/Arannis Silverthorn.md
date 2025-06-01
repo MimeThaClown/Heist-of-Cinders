@@ -8,7 +8,8 @@ Born into a noble family and was the perfect heir. People looked up to him and h
 - Eldest son of the House Silverthorn.
 - Trained and served as a knight of the tribunal.
 - His sister was the one person he always returned to.
-- 
+- He's trapped with the mother of decay.
+- Showed up in the round table talking to Caellum
 
 # Relationships:
 
