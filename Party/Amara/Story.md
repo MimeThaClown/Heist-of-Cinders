@@ -1,0 +1,1 @@
+The youngest daughter of the noble Family the Silverthorns. Amara's dream was always to become a knight.
