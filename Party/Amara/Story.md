@@ -1,1 +1,1 @@
-The youngest daughter of the noble Family the Silverthorns. A prestigious elven family known for birthing strong knights. At some
+The youngest daughter of the noble Family the Silverthorns. A prestigious elven family known for birthing strong knights. At some point in her past she was entrusted with the care of Emeric Archambeau. This responsibility left emotional marks, protectiveness 
