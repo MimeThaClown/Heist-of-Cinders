@@ -1,1 +1,1 @@
-The youngest daughter of the noble Family the Silverthorns. Amara's dream was always to become a knight.
+The youngest daughter of the noble Family the Silverthorns. A prestigious elven family known for birthing strong knights. At some
