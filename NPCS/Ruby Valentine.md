@@ -7,3 +7,5 @@ A human female with vibrant red hair, currently known as "The Gem of the Tribuna
 # Notable Facts
 - Ryme fumbled 
 - Guys please stop telling her when we break the law. please bro please.
+- Asked Ryme to accompany her to the ball.
+- 
